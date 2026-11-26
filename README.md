@@ -4,6 +4,8 @@
 
 **作者：观复居士 ·商务合作：13148728713；微信号：guanfujs**
 
+[![SkillHub](https://img.shields.io/badge/下载-SkillHub-orange)](https://www.skillhub.cn/skills/guanfu-shishen-persona)
+
 **English**: Ten personality archetypes from traditional Chinese culture as a self-understanding tool — quick-reference cards, pair-combination readings, a match-yourself method, and 'two ways to live the same archetype' comparisons. Cultural reference, not fortune-telling.
 
 ---
